@@ -1,0 +1,1 @@
+# bratislavsky-skandal.webgpt.cz
